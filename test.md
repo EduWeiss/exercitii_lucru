@@ -1,0 +1,1 @@
+salutare eu sunt smecher
